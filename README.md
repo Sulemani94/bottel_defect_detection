@@ -212,7 +212,7 @@ This project is licensed under the MIT License — see the [LICENSE](LICENSE) fi
 
 **Khizar Hayat**  
 Computer Vision & Deep Learning Enthusiast  
-[LinkedIn](https://linkedin.com/in/your-profile) | [GitHub](https://github.com/your-username)
+[www.linkedin.com/in/khizar-hayat-576069331 | (https://github.com/Sulemani94)]
 
 ---
 
